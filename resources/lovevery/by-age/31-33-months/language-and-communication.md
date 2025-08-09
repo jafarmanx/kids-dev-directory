@@ -1,3 +1,7 @@
+# Language and Communication for 31-33 Month Olds
+
+*   **Speech and Language:** A 31-month-old may be saying around 100 to 500 words and using two- or three-word phrases. By 3 years, their vocabulary can expand to 900-1000 words, and they may use 3- to 5-word sentences.
+
 # Storytelling: A Guide for 31-33 Months
 
 ## Why is Storytelling Important?

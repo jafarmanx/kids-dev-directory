@@ -1,8 +1,8 @@
-# Walking: A Guide for 13-15 Months
+# Walking: A Guide for 11-12 Months
 
 ## When do babies start walking?
 
-Most babies start walking between 13 and 15 months old. Some may start earlier, and some may take a little longer. Every baby is different.
+Most babies start walking between 11 and 13 months old. At this age, they have the strength and coordination to take their first steps.
 
 ## How to Encourage Walking
 
