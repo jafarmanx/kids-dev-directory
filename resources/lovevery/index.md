@@ -124,5 +124,38 @@ Playtime, Playthings, Puzzles, Lovevery, Cause and Effect, Fine Motor, Sensory P
 
 
 
-
-https://blog.lovevery.com/skills-stages/babbling/
+## Skils and Stages
+https://blog.lovevery.com/skills-stages/
+- https://blog.lovevery.com/skills-stages/babbling/
+- https://blog.lovevery.com/skills-stages/bonding/
+- https://blog.lovevery.com/skills-stages/colors/
+- https://blog.lovevery.com/skills-stages/concentration-and-focus/
+- https://blog.lovevery.com/skills-stages/crawling/
+- https://blog.lovevery.com/skills-stages/crying/
+- https://blog.lovevery.com/skills-stages/empathy/
+- https://blog.lovevery.com/skills-stages/executive-function/
+- https://blog.lovevery.com/skills-stages/fears-anxieties/
+- https://blog.lovevery.com/skills-stages/grasping/
+- https://blog.lovevery.com/skills-stages/hand-eye-coordination/
+- https://blog.lovevery.com/skills-stages/head-control/
+- https://blog.lovevery.com/skills-stages/independent-play/
+- https://blog.lovevery.com/skills-stages/laughing/
+- https://blog.lovevery.com/skills-stages/matching-and-sorting/
+- https://blog.lovevery.com/skills-stages/numbers-counting/
+- https://blog.lovevery.com/skills-stages/object-permanence/
+- https://blog.lovevery.com/skills-stages/pointing/
+- https://blog.lovevery.com/skills-stages/pretend-play/
+- https://blog.lovevery.com/skills-stages/problem-solving/
+- https://blog.lovevery.com/skills-stages/reading/
+- https://blog.lovevery.com/skills-stages/rolling/
+- https://blog.lovevery.com/skills-stages/sensory-play/
+- https://blog.lovevery.com/skills-stages/sharing-taking-turns/
+- https://blog.lovevery.com/skills-stages/sitting/
+- https://blog.lovevery.com/skills-stages/smiling/
+- https://blog.lovevery.com/skills-stages/stacking/
+- https://blog.lovevery.com/skills-stages/standing/
+- https://blog.lovevery.com/skills-stages/talking-language-development/
+- https://blog.lovevery.com/skills-stages/tantrums/
+- https://blog.lovevery.com/skills-stages/throwing/
+- https://blog.lovevery.com/skills-stages/tummy-time/
+- https://blog.lovevery.com/skills-stages/walking/
