@@ -1,5 +1,42 @@
 Resouce links: 
 
+## Skils and Stages
+https://blog.lovevery.com/skills-stages/
+- https://blog.lovevery.com/skills-stages/babbling/
+- https://blog.lovevery.com/skills-stages/bonding/
+- https://blog.lovevery.com/skills-stages/colors/
+- https://blog.lovevery.com/skills-stages/concentration-and-focus/
+- https://blog.lovevery.com/skills-stages/crawling/
+- https://blog.lovevery.com/skills-stages/crying/
+- https://blog.lovevery.com/skills-stages/empathy/
+- https://blog.lovevery.com/skills-stages/executive-function/
+- https://blog.lovevery.com/skills-stages/fears-anxieties/
+- https://blog.lovevery.com/skills-stages/grasping/
+- https://blog.lovevery.com/skills-stages/hand-eye-coordination/
+- https://blog.lovevery.com/skills-stages/head-control/
+- https://blog.lovevery.com/skills-stages/independent-play/
+- https://blog.lovevery.com/skills-stages/laughing/
+- https://blog.lovevery.com/skills-stages/matching-and-sorting/
+- https://blog.lovevery.com/skills-stages/numbers-counting/
+- https://blog.lovevery.com/skills-stages/object-permanence/
+- https://blog.lovevery.com/skills-stages/pointing/
+- https://blog.lovevery.com/skills-stages/pretend-play/
+- https://blog.lovevery.com/skills-stages/problem-solving/
+- https://blog.lovevery.com/skills-stages/reading/
+- https://blog.lovevery.com/skills-stages/rolling/
+- https://blog.lovevery.com/skills-stages/sensory-play/
+- https://blog.lovevery.com/skills-stages/sharing-taking-turns/
+- https://blog.lovevery.com/skills-stages/sitting/
+- https://blog.lovevery.com/skills-stages/smiling/
+- https://blog.lovevery.com/skills-stages/stacking/
+- https://blog.lovevery.com/skills-stages/standing/
+- https://blog.lovevery.com/skills-stages/talking-language-development/
+- https://blog.lovevery.com/skills-stages/tantrums/
+- https://blog.lovevery.com/skills-stages/throwing/
+- https://blog.lovevery.com/skills-stages/tummy-time/
+- https://blog.lovevery.com/skills-stages/walking/
+
+
 ## 13 - 15 Months
 https://blog.lovevery.com/age-range/13-15-months/
 
@@ -123,39 +160,21 @@ https://blog.lovevery.com/age-range/16-18-months/
 Playtime, Playthings, Puzzles, Lovevery, Cause and Effect, Fine Motor, Sensory Play, Gross Motor, Rolling, us-weekly-series, Stacking, Cognitive Development, Physical Development, Crawling, Health, Language Development, Child Development, Sorting, Play Schema, Movement, Transporting, Arts & Crafts, Grasping, Problem Solving, Executive Function, Home, Routines, Travel, Screentime & Technology, Positive Parenting, Parenthood, Montessori, Colors, STEM, Sensory Development, Receptive Language, Crying, Behavior, Social Skills, Managing Emotions, Early Speech, Babbling, Play things, Play time
 
 
-
-## Skils and Stages
-https://blog.lovevery.com/skills-stages/
-- https://blog.lovevery.com/skills-stages/babbling/
-- https://blog.lovevery.com/skills-stages/bonding/
-- https://blog.lovevery.com/skills-stages/colors/
-- https://blog.lovevery.com/skills-stages/concentration-and-focus/
-- https://blog.lovevery.com/skills-stages/crawling/
-- https://blog.lovevery.com/skills-stages/crying/
-- https://blog.lovevery.com/skills-stages/empathy/
-- https://blog.lovevery.com/skills-stages/executive-function/
-- https://blog.lovevery.com/skills-stages/fears-anxieties/
-- https://blog.lovevery.com/skills-stages/grasping/
-- https://blog.lovevery.com/skills-stages/hand-eye-coordination/
-- https://blog.lovevery.com/skills-stages/head-control/
-- https://blog.lovevery.com/skills-stages/independent-play/
-- https://blog.lovevery.com/skills-stages/laughing/
-- https://blog.lovevery.com/skills-stages/matching-and-sorting/
-- https://blog.lovevery.com/skills-stages/numbers-counting/
-- https://blog.lovevery.com/skills-stages/object-permanence/
-- https://blog.lovevery.com/skills-stages/pointing/
-- https://blog.lovevery.com/skills-stages/pretend-play/
-- https://blog.lovevery.com/skills-stages/problem-solving/
-- https://blog.lovevery.com/skills-stages/reading/
-- https://blog.lovevery.com/skills-stages/rolling/
-- https://blog.lovevery.com/skills-stages/sensory-play/
-- https://blog.lovevery.com/skills-stages/sharing-taking-turns/
-- https://blog.lovevery.com/skills-stages/sitting/
-- https://blog.lovevery.com/skills-stages/smiling/
-- https://blog.lovevery.com/skills-stages/stacking/
-- https://blog.lovevery.com/skills-stages/standing/
-- https://blog.lovevery.com/skills-stages/talking-language-development/
-- https://blog.lovevery.com/skills-stages/tantrums/
-- https://blog.lovevery.com/skills-stages/throwing/
-- https://blog.lovevery.com/skills-stages/tummy-time/
-- https://blog.lovevery.com/skills-stages/walking/
+## 19 - 21 Months
+https://blog.lovevery.com/age-range/19-21-months/
+- https://blog.lovevery.com/product-recommendations/welcome-to-the-realist-play-kit-for-months-19-21/
+- https://blog.lovevery.com/child-development/4-signs-toddlers-understand-language-even-if-they-arent-taking-much-yet/
+- https://blog.lovevery.com/child-development/what-should-my-toddlers-art-look-like-right-now/
+- https://blog.lovevery.com/child-development/the-magical-teaching-powers-of-words-like-humongous/
+- https://blog.lovevery.com/child-development/we-asked-4-professionals-what-they-wished-toddler-parents-would-do-more/
+- https://blog.lovevery.com/child-development/8-ways-toddlers-start-to-talk-between-18-and-24-months/
+- https://blog.lovevery.com/child-development/the-toddler-game-of-who-what-where-why-how/
+- https://blog.lovevery.com/child-development/kicking-biting-and-hitting-understanding-and-responding-to-your-toddlers-tantrums/
+- https://blog.lovevery.com/child-development/picture-book-project-preserving-your-toddlers-first-words/
+- https://blog.lovevery.com/child-development/the-earlier-the-better-math-is-already-developing-in-your-toddlers-brain/
+- https://blog.lovevery.com/child-development/introducing-the-montessori-animal-match-game-to-your-toddler/
+- https://blog.lovevery.com/child-development/5-ways-to-play-the-pom-pom-way/
+- https://blog.lovevery.com/child-development/the-montessori-activity-you-already-have-in-your-house/
+- https://blog.lovevery.com/child-development/clean-up-clean-up-everybody-everywhere/
+- https://blog.lovevery.com/child-development/what-kind-of-chores-are-right-for-my-child/
+-
