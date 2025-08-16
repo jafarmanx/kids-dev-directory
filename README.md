@@ -3,6 +3,7 @@
 This project is a directory of resources for parents to help them in their child's development journey. The goal is to scrape content from various websites and create an indexed directory for quick access to information.
 
 ## Resources
+Loveevery Blog Index page [index.md](resources/lovevery/index.md)
 
 ### General Resources
 
